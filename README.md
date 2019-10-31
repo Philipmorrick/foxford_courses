@@ -352,7 +352,7 @@ https://mega.nz/#!BFNV3Q7b!kioo4rQuzS5l7GyGpXJyGhlgPlnSQ2c15DYMsuOi8kw
 
 - [Математика. Подготовка к ЕГЭ. Часть С](https://mega.nz/#F!IZ9CDarJ!ol_8oe2BQRSWz6L3_ps8IA)
 
-- [Математика. Подготовка к ЕГЭ. Часть Б](https://rutracker.org/forum/viewtopic.php?p=77546191)
+- [Математика. Подготовка к ЕГЭ. Часть Б](http://tinyurl.com/yxldxysm)
 
 - [Мини-курс по математике "Векторный метод в пространстве"](https://yadi.sk/d/VpO8uoXWqzfwVg)
 
