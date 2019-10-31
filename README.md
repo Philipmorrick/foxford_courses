@@ -352,7 +352,7 @@ https://mega.nz/#!BFNV3Q7b!kioo4rQuzS5l7GyGpXJyGhlgPlnSQ2c15DYMsuOi8kw
 
 - [Математика. Подготовка к ЕГЭ. Часть С](https://mega.nz/#F!IZ9CDarJ!ol_8oe2BQRSWz6L3_ps8IA)
 
-- [Математика. Подготовка к ЕГЭ. Часть Б](https://rutracker.org/forum/viewtopic.php?p=77546191)
+- [Математика. Подготовка к ЕГЭ. Часть Б](magnet:?xt=urn:btih:7E0CBA85997996468781DFEA9B4B95E9C75AF19F&dn=%5b%d0%a4%d0%be%d0%ba%d1%81%d1%84%d0%be%d1%80%d0%b4%5d%20%d0%9c%d0%b0%d1%82%d0%b5%d0%bc%d0%b0%d1%82%d0%b8%d0%ba%d0%b0%20%d0%9f%d0%be%d0%b4%d0%b3%d0%be%d1%82%d0%be%d0%b2%d0%ba%d0%b0%20%d0%ba%20%d0%95%d0%93%d0%ad%20%d1%87%d0%b0%d1%81%d1%82%d1%8c%20B%2011%20%d0%ba%d0%bb%d0%b0%d1%81%d1%81&tr=udp%3a%2f%2ftracker.openbittorrent.com%3a80%2fannounce&ws=http%3a%2f%2fremote.utorrent.com%2ftalon%2fseed%2f3222693785%2fcontent%2f528092e)
 
 - [Мини-курс по математике "Векторный метод в пространстве"](https://yadi.sk/d/VpO8uoXWqzfwVg)
 
